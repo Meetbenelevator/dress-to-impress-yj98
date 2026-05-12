@@ -1,4 +1,4 @@
-#  
+#  Experience dress to impress like never before with dress to impress Scripts secure, the #1 Script. Includes unlimited stamina and auto-sell for
 
 
 
